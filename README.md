@@ -21,6 +21,6 @@ offers a vast collection of fonts, including serif fonts, sans-serif fonts, deco
 
 ## Get Started
 
-Ready to enhance your designs with stunning fonts? Visit [da font style](https://dafont.style/) today and start downloading! Don't forget to check out their collection of trending and popular fonts.
+Ready to enhance your designs with stunning fonts? Visit [Download font style](https://dafont.style/) today and start downloading! Don't forget to check out their collection of trending and popular fonts.
 
 Happy designing!
